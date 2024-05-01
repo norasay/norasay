@@ -1,2 +1,2 @@
-- 👋 Hi, I’m Nora
+👋 Hi, I’m Nora
 
